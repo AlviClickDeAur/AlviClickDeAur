@@ -1,0 +1,4 @@
+- 👋 Salut, sunt @AlviClickDeAur
+- 👀 Sunt interesat de programare(FiveM)
+- 🌱 Incerc sa invat cat mai multe
+- 💞️ 
